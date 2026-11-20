@@ -1,0 +1,1 @@
+Kala ja aurinko. Kiitos.
